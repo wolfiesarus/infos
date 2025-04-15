@@ -9,7 +9,7 @@ a bit of information :)
 <br>
 <b>LIKES/INT: Sonic, Overwatch, Resident Evil, Dragon Ball, cosplay, art/drawing, metal/rock/v-kei/k-pop, animals!!!</b> <img src="https://gifcity.carrd.co/assets/images/gallery97/efdc400b.gif?v=dc8076d6" alt="dancing kitty icon with heart above head">
 
-<b>DISLIKES/DNI: Basic DNI criteria here, i esp hate bullying over pt skins and aniaml cruelty. That's it really.<b>
+<b>DISLIKES/DNI: Basic DNI criteria here, i esp hate bullying over pt skins and animal cruelty. That's it really.<b>
 <br>
 <br>
 <br> <img src="https://gifcity.carrd.co/assets/images/gallery44/e9ecabff.gif?v=dc8076d6" alt="shark fin swimming through top of water">
